@@ -1,4 +1,4 @@
-<img src="https://i.ibb.co.com/sdnfFNg5/Cover-Photo.png">
+<img src="https://i.ibb.co.com/d4HG8tnR/Mizanulkais-web-designer-developer-application-wordpress.jpg">
 <h1 align="center">Hi 👋, I'm Dewan Mohammad Mizanul Kais</h1>
 <h3 align="center">Passionate web designer, developer, and WordPress expert with a strong focus on creating user friendly, responsive websites.</h3>
 
