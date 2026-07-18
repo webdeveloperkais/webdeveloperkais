@@ -15,6 +15,7 @@
 - 📫 How to reach me **mizanulkais@gmail.com**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1F96CNAEbK4OSiDHsHtB9ssLB2y2OXiEG/view?usp=sharing](https://drive.google.com/file/d/1F96CNAEbK4OSiDHsHtB9ssLB2y2OXiEG/view?usp=sharing)
+- https://drive.google.com/file/d/114g4Rph1XYZLEt5Md2YCr6FY-ZRHZMNT/view?usp=drive_link
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
